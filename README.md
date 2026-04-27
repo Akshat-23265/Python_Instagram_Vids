@@ -15,7 +15,7 @@
 
 Whether you're a complete beginner or brushing up on fundamentals, this series is built for you.
 
-📲 **Follow along on Instagram:** [@your_handle](https://instagram.com/your_handle)
+📲 **Follow along on Instagram:** [@your_handle](https://www.instagram.com/codeing_withaj)
 
 ---
 
